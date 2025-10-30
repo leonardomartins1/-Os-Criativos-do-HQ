@@ -1,10 +1,12 @@
 # -Os-Criativos-do-HQ
 Tema da História em Quadrinhos: Ficção Científica / Aventura Ética 
 
-Integrantes:                                                                         
-Ruy Luiz da Silva Machado Neto – Polo Vila Velha; 
-Everton Barbosa dos Santos – Polo Vila Velha; 
+Integrantes:      
 Leonardo Silveira Martins – Polo Conceição da Barra; 
+Matheus guimaraes:
+Lucas Albuquerque; 
+Everton Barbosa dos Santos – Polo Vila Velha; 
+
 
 Sinopse da História: 
 
