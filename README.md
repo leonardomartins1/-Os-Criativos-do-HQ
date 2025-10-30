@@ -3,7 +3,7 @@ Tema da História em Quadrinhos: Ficção Científica / Aventura Ética
 
 Integrantes:      
 Leonardo Silveira Martins – Polo Conceição da Barra; 
-Matheus guimaraes:
+Matheus guimaraes;
 Lucas Albuquerque; 
 Everton Barbosa dos Santos – Polo Vila Velha; 
 
